@@ -1,3 +1,3 @@
-![Aultism Image](autism.jpg)
+![Aultism Image](autism.jpeg)
 
 
